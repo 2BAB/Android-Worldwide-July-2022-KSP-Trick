@@ -1,0 +1,1 @@
+# Android-Worldwide-July-2022-KSP-Trick
